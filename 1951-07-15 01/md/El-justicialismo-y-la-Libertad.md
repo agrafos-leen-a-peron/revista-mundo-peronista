@@ -84,7 +84,7 @@ Pero no puede ser feliz si no es libre.
 
 De allí que el problema de la libertad sea fundamental para el hombre.
 
-Si el Justicialismo aspira a hacer la felicidad de? hombre en la sociedad, deberá ofrecerle un grado de libertad tal que le permita
+Si el Justicialismo aspira a hacer la felicidad del hombre en la sociedad, deberá ofrecerle un grado de libertad tal que le permita
 vivir feliz.
 
 El problema queda planteado en términos fundamentales.
