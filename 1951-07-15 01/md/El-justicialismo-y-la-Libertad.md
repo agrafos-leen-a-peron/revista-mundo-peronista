@@ -1,30 +1,14 @@
 # “EL JUSTICIALISMO Y LA LIBERTAD”
 
-PENSEMOS que lo más importante es que el
+## LA LIBERTAD EN EL PENSAMIENTO DE PERON
 
-pueblo sea libre, libre dentro de la ley y,
+> PENSEMOS que lo más importante es que el pueblo sea libre, libre dentro de la ley y, además, dentro de una ética, sin la cual la libertad es un mito.” (5-IX-50.)
 
-además, dentro de una ética, sin la cual la
-libertad es un mito.” (5-IX-50.)
+> “Se ha dicho que sin libertad no puede haber justicia social, y yo respondo que sin justicia social no puede haber libertad.” (1-V-49.)
 
-“Se ha dicho que sin libertad no puede haber
-justicia social, y yo respondo que sin justicia
-social no puede haber libertad.” (1-V-49.)
+> “La libertad no puede diseutirse; se conquista y se va realizando.” (19-XII-50.)
 
-“La libertad no puede diseutirse; se conquis-
-ta y se va realizando.” (19-XII-50.)
-
-“La libertad sin justicia es la peor de las ig-
-nominias.” (1-VIII-49.)
-
-
-
-LA LIBERTAD
-EN EL
-PENSAMIENTO
-DE +ERON
-
-
+> “La libertad sin justicia es la peor de las ignominias.” (1-VIII-49.)
 
 ## I - CONCEPTO PERONISTA DE LA LIBERTAD
 
